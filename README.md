@@ -1,0 +1,1 @@
+# DACON-Shinhan-AI-Competition-for-AI-Service-Ideas-for-Better-Financial-Life
